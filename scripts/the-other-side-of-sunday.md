@@ -739,7 +739,7 @@ ZURI: I got two juices, but one's for Miss Naomi, so it doesn't count.
 
 ### SCENE 19 — CREATOR BREAK
 
-CTA: Every film on [Channel Name] takes weeks to bring to life. The writing, the characters, the voices, every single scene. Most of you watching right now aren't subscribed yet. If this story has you, take one second and hit subscribe. It's free, and it helps us keep making these films for you. Thank you for being here. Now, back to the movie.
+CTA: Every film on Velvet Reel Studios takes weeks to bring to life. The writing, the characters, the voices, every single scene. Most of you watching right now aren't subscribed yet. If this story has you, take one second and hit subscribe. It's free, and it helps us keep making these films for you. Thank you for being here. Now, back to the movie.
 
 [music]
 
